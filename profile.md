@@ -6,7 +6,7 @@
 
 <h3><a href="https://gamescentral.net/">CLICK TO PLAY BITLIFE</a> </BR> </BR></h3>
 
-### BitLife Unblocked: Play Anywhere, Anytime!
+# BitLife Unblocked: Play Anywhere, Anytime!
 
 Ever wondered what it's like to live countless lives, make bold decisions, and explore endless possibilities—all from the comfort of your device? That's exactly what BitLife brings to the table.
 
